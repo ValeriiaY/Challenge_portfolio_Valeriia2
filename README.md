@@ -11,4 +11,5 @@ The next con for me is the program is free, the tasks are in English(which also 
 While doing the first task, one more con to be added - mentors are nice and patient towards their students, which is extremely helpful while doing your first steps in the new sphere. 
 
 From the project, I expect to get some basic skills for my future job and to see how it's organized within.  
+
 At the moment my expectations are absolutely fulfilled  :)
